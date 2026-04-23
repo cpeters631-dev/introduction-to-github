@@ -43,4 +43,22 @@ If you don't get feedback, here are some things to check:
 - Make sure your pull request title is correct.
 - Ensure your pull request has a description.
 
+
+stop that 
+
+go away from my computer!!!!h
+how is this possible
+hacking
+ohhh i see
+no u don"t we're on the other side of the world
+from france
+xoxo
+sure baud 
+
+xoxo pussy doll cats
+pussy ahhh biacht
+lame
+gotto go loser
+
+
 </details>
